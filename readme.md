@@ -1,6 +1,6 @@
  oi sou a lariany 
  
- faço 1 ano de desenvolvimento de sistemas
+ faço 1° de desenvolvimento de sistemas
  
  na EEEP Deputado Roberto Mesquita 
  
